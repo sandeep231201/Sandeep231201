@@ -1,5 +1,5 @@
 # Hidden Features
-I am Software Developer and a tech freak.<br> 🐱‍👤Shoot me an Email or add me on LinkedIn :)
+I am Software Developer and a tech freak.<br> Shoot me an Email or add me on LinkedIn :)
 
 
 ## 🌐 Socials:
