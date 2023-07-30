@@ -1,5 +1,5 @@
-# 💫 About Me:
-😎 I am Software Engineer with a passion for Programming and Development.<br> 🐱‍👤Shoot me an Email or add me on LinkedIn :)
+# Hidden Features
+I am Software Developer and a tech freak.<br> 🐱‍👤Shoot me an Email or add me on LinkedIn :)
 
 
 ## 🌐 Socials:
